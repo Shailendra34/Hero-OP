@@ -1,3 +1,7 @@
+<p align="center">
+    <br><b>😘 𝗔𝗿𝗻𝗮𝘃 𝗠𝘂𝘀𝗶𝗰 😘</b><br>
+</p>
+<p align="center"><a href="https://t.me/link_copied"><img src="https://te.legra.ph/file/fac905e90093a52069cca.jpg"></a></p>
 <h4 align="center">
     ᴀ ᴛᴇʟᴇɢʀᴀᴍ ᴍᴜsɪᴄ+ᴠɪᴅᴇᴏ ʙᴏᴛ ᴡʀɪᴛᴛᴇɴ ɪɴ ᴘʏᴛʜᴏɴ ᴜsɪɴɢ ᴘʏʀᴏɢʀᴀᴍ ᴀɴᴅ ᴘʏ-ᴛɢᴄᴀʟʟs 
 </h4>
